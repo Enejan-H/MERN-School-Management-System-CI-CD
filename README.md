@@ -13,7 +13,7 @@ Access records, view marks, and communicate effortlessly.
 <br><br>
 [LinkedIn](https://www.linkedin.com/in/yogndr/)
 <br><br>
-[LinkedIn](https://youtu.be/ol650KwQkgY?si=rKcboqSv3n-e4UbC)
+[LinkedIn](https://www.linkedin.com/in/enejan-hayytjanova-a3a5321b0/))
 
 # About
 
